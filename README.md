@@ -1,2 +1,0 @@
-# kennyalale.github.io
- 
